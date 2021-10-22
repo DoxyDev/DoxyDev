@@ -1,3 +1,7 @@
+# WELCOME TO DOXYDEV'S GITHUB
+
+Please Read the text below if you wish to know more about me! Have a Nice Day <3
+
 ## WHO ARE YOU? 
 
 Hello There! I'm DoxyDev, a 19 year old aspiring Web/Software Developer from the US, I've been developing/designing websites since my 
