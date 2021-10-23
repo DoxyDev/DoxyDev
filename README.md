@@ -22,4 +22,6 @@ You may contact me here on GitHub, or through any of my socials listed below.
 
 Discord - Døx#0001
 
+Discord Server - https://discord.gg/YQdpsm25eE
+
 Twitter - ItssDox
