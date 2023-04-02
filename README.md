@@ -24,4 +24,4 @@ Discord - Doxy#0001
 
 Discord Server - https://discord.gg/EycuRZuUhN
 
-Twitter - https://twitter.com/doxywastaken
+Twitter - https://twitter.com/notDoxy
