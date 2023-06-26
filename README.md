@@ -20,7 +20,7 @@ For any inqueries on assistance with projects, feel free to add me on Discord or
 
 You may contact me here on GitHub, or through any of my socials listed below. 
 
-Discord - Doxy#0001
+Discord - d.xy
 
 Discord Server - https://discord.gg/EycuRZuUhN
 
