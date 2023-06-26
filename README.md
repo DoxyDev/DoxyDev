@@ -20,8 +20,8 @@ For any inqueries on assistance with projects, feel free to add me on Discord or
 
 You may contact me here on GitHub, or through any of my socials listed below. 
 
-Discord - d.xy
+Discord - @d.xy
 
-Discord Server - https://discord.gg/EycuRZuUhN
+Discord Server - https://discord.gg/slashest
 
 Twitter - https://twitter.com/notDoxy
